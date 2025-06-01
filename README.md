@@ -1,5 +1,5 @@
 🎨 Free Image Collections – Download High-Quality PNGs, Vectors, and Logos for Free
-Welcome to Free Image Collections – a curated resource of free PNG photos, brand logo PNGs, transparent images, and vector files. Whether you're a designer, blogger, web developer, or just someone looking for quality visuals, this collection is your go-to source for <a href="https://pixwhy.com/" > free </a> image resources.
+Welcome to Free Image Collections – a curated resource of free PNG photos, brand logo PNGs, transparent images, and vector files. Whether you're a designer, blogger, web developer, or just someone looking for quality visuals, this collection is your go-to source for <a href="https://pixwhy.com/" > free image </a> resources.
 
 👉 Visit our main website for full access: https://cvtfile.com
 
